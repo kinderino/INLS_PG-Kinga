@@ -1,1 +1,1 @@
-jfjfjnfjnfjnfjf
+Aktualizacja lelelele blablabla
